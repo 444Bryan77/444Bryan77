@@ -11,4 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about VALORANT
 - 📫 How to reach me: You can reach me at @adjaluddinbry27@gmail.com
 - ⚡ Fun fact: I love Pares and chicken inasal
-
+- Hobbie: Gym, Basketball, Video games, Outdoor Activities
+- Interest: 
